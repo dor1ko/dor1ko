@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @dor1ko
+- 👀 I’m interested in game design, UXUI, and art. Variety gamer all around.
+- 🌱 I’m not currently learning anything, but am planning to learn blender, C++/Java, FL studio, and godot sometime in the future.
+- 🎓 My future career paths will focus on game design, UXUI, and graphic design.
+- 💞️ I’m looking to collaborate on projects looking for an artist.
+- 📫 How to reach me: - - - discord: Doriko#0001 - - - email: doriko@vivaldi.net
+- 🎨 Check out my deviantart: https://www.deviantart.com/dorikoff
